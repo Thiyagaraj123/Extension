@@ -11,3 +11,4 @@ e nvvev, eve,ve v
 rvmw
 lkvw wlk wel vwlkw wlw
 l wl lw vlw 
+lvl w v lvwwl vlw vw vwvw
