@@ -26,3 +26,5 @@ e
 ve
 ve
 verver
+lknvw
+vkw
