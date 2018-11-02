@@ -15,3 +15,9 @@ lvl w v lvwwl vlw vw vwvw
 l w wl wl w wl w
 m wvw,llwkvwkw lww lvlwwlkwlvkw
 lwjwm vlwk wl  l w  lw
+vlvv v
+
+evv
+eveve
+ve
+lvlvev
