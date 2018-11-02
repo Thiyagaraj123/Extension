@@ -21,3 +21,8 @@ evv
 eveve
 ve
 lvlvev
+veroenov oenveoiveon
+e
+ve
+ve
+verver
